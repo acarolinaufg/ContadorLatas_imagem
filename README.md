@@ -1,0 +1,1 @@
+# ContadorLatas_imagem
